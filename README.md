@@ -3,3 +3,4 @@
 2. [Attention is all you need - modified](https://docs.google.com/document/d/11saByhD_kaT7qCJLo6pf9ER9QzlEMSxnNTWRwEajO4I/edit?usp=sharing)
 3. [Canva - Presentation](https://www.canva.com/design/DAG3vASRLEs/YL9wsn21heF0KgbfViNZSg/edit?utm_content=DAG3vASRLEs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 4. [Research Papers](https://docs.google.com/document/d/1sFFZjmzdrOp72Z8wQ6S6Oa3dU-Zh0FrhEvbKRDmmLF4/edit?usp=sharing)
+5. [Susmitha Research Paper](https://docs.google.com/document/d/1QPPdvfKRliK4nkAs93bLFb5UQyYxyCNP2KTPFq9S0tA/edit?usp=sharing)
